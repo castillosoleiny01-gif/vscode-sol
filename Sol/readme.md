@@ -5,4 +5,4 @@ interpretar símbolos (letras
 texto escrito. Es una herramienta fundamental para adquirir 
 conocimiento, estimular 
 la imaginación, mejorar el 
-lenguaje una ejercitar el cerebro. Implica componentes activos como la atención una la comprenci on 
+lenguaje una ejercitar el cerebro. Implica componentes activos como la atención una la comprencion
